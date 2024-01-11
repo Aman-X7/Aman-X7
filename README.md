@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects related to web and software develpoment
 - 📫 How to reach me  mail me on 
 
-rishusingh1017@gmail.com or call on 9303135359
+rishusingh1017@gmail.com or call on 7004663993
 
 <!---
 Aman-X7/Aman-X7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
